@@ -10,3 +10,4 @@ great
 ok
 OG
 madar
+own
