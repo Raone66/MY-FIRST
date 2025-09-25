@@ -11,3 +11,4 @@ ok
 OG
 madar
 own
+richer
