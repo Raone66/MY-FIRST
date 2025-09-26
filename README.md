@@ -13,3 +13,4 @@ madar
 own
 richer
 more richer
+paisa
