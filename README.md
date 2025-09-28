@@ -16,3 +16,4 @@ more richer
 paisa
 bad boys 
 amir
+wealthy
