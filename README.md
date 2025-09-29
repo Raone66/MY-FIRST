@@ -17,3 +17,4 @@ paisa
 bad boys 
 amir
 wealthy
+tetema 
