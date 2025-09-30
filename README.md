@@ -18,3 +18,4 @@ bad boys
 amir
 wealthy
 tetema 
+stock
