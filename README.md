@@ -20,3 +20,4 @@ wealthy
 tetema 
 stock
 me
+telegram
