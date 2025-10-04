@@ -22,3 +22,5 @@ stock
 me
 telegram
 Raw
+Raone
+Madmax
