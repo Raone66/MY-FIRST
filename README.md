@@ -24,3 +24,4 @@ Raone
 Madmax
 Royal ghost
 juice
+furry
