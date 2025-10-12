@@ -29,7 +29,7 @@ america
 swag
 anjali
 F U 
-
+tell (oil)
 
 
 
