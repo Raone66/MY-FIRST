@@ -38,7 +38,7 @@ git hub
 pink
 soda
 crow today f u <>(m,n)
-shala bal dream base solution hub like, Mento, FYI discord sali
+shala bal dream base solution hub like, Mento, FYI discord sali ishq
 
 
 
