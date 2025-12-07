@@ -1,4 +1,4 @@
-# MY-FIRST
+aaaa# MY-FIRST
 Hello, this is my very first GitHub commit 🚀
 First commit: added hello message
 great news
@@ -38,7 +38,7 @@ git hub
 pink
 soda
 crow today f u <>(m,n)
-shala bal dream base solution hub like, Mento, FYI discord sali ishq takka power income 3800 upset privacy Alpha biscuit 83000 RC GG glider gold map guns best loan same blame lift time pushpa streak end power ipo t-rex sales dahi god
+shala bal dream base solution hub like, Mento, FYI discord sali ishq takka power income 3800 upset privacy Alpha biscuit 83000 RC GG glider gold map guns best loan same blame lift time pushpa streak end power ipo t-rex sales dahi god fire rate
 
 
 
