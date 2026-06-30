@@ -4,7 +4,8 @@ First commit: added hello message
 great news
 nice
 op day bowmans kand fasa nahi hack ok drama lol no bolo russia mean banega ok grey lil go 97.9 high maan universe 1000 ak
-lol nice no
+lol nice no ol
+
 
 
 
