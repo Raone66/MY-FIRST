@@ -7,7 +7,7 @@ op day bowmans kand fasa nahi hack ok drama lol no bolo russia mean banega ok gr
 lol nice no ol 1000 Raw la lol sada bol 400000 ig men 90% poli bol too much bhaiya priye order pratikraman dil singham sports ok party
 bhide ko pav ok mar lol hol angur kk 8k tom shadi bharat Doom holiday ka tony stark rate crash ok aram joll able no glitch doval saab damaad sulam minakshi
 pooop space cbvnm kid sokara india link damad upi 11000 ok hoy maja poco eureka ladki kim john 3 dos never end update piya pe nill cut up 40000
-duriya 13 lakh call moma
+duriya 13 lakh call moma nin
 
 great
 ok
